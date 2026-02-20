@@ -1,0 +1,1 @@
+# Labaroratorni_roboty_Kurylyak_AP_22
